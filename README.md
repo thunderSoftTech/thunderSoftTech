@@ -1,4 +1,4 @@
-### Hi I am Muhammad Rehma    👋
+### Hi I am Muhammad Rehman    👋
 
 
 Here are some ideas to get you started:
