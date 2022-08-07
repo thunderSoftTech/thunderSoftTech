@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 
 
 ## 🌐 Socials
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](www.linkedin.com/in/muhammad-rehman-b9434612a) [![UpWork]([https://filelu.com/xtrrsz036zli](https://play-lh.googleusercontent.com/y4bswMT02OROjzOPa5zDGsnXX5-cBABjF93j26seJH2cEHD4PuBW1d5VvwfYleeKf4_X))]([https://medium.com/@imthepk](https://www.upwork.com/freelancers/~012a4bf5e9a5d8aa29?viewMode=1))
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](www.linkedin.com/in/muhammad-rehman-b9434612a) 
 
